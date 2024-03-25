@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI world
 - 🌱 I’m currently learning metaweb 4.0
 - 📫 How to reach me? through gmail: nisreen30445099@gmail.com
-- 😄 Pronouns: nisreen
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: its not nasreen its nisreennn!
 
 <!---
